@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @DavidAlka
+- 🌱 I’m currently learning :)
